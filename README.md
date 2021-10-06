@@ -1,4 +1,6 @@
- BRUCE JUNHUA ZHOU 
+                       BRUCE JUNHUA ZHOU 
+                       
+                       
 junhuazhou96@outlook.com | (647) 675-2803 
 15 Halder Crescent, Markham, Ontario, L3R 7E8
 LinkedIn: www.linkedin.com/in/junhua-zhou-927812182 
